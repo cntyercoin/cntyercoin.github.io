@@ -1,1 +1,1 @@
-# cntyercoin.github.io
+# beldenbdc.github.io
